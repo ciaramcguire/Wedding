@@ -112,6 +112,10 @@ _Couple to stand_
 **Bill:** Do you Ciara Elizabeth McGuire take Paul Martin Campbell to be your husband; to share a relationship of love, tenderness and laughter; to confide in and trust above all others; to respect and stand by him in everything as an equal partner; but above all else to love and cherish him?
 **Ciara:**  I do.
 
+**Bill (to  parents):**  As your children find partners and find homes, each of your families is enriched and enlarged. Do you, who have nurtured these two, bestow your blessings on their union and their family?
+**Parents:**  We do
+
+
 ## Song Gianni
 Michael Bublé: Anima e Core
 
