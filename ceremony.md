@@ -32,7 +32,7 @@ We are gathered here to witness Ciara and Paul join in the bonds of matrimony. I
 We don’t know what the future may bring into the life of this couple, but we hope that together they may be equal to the needs of their tomorrows. May they have patience in time of strain, strength in time of weakness, courage in time of discouragement, vision in time of doubt, and above all, growing love. May the love in your hearts and the greatness of life’s possibilities give you joy, the awareness of your friends and families’ good wishes give you peace and strength.
 
 ## READING
-I'd like to invite Michael to read The Art of Marriage by Wilferd A. Peterson
+I'd like to invite Ciara and Paul's friend Michael to read The Art of Marriage by Wilferd A. Peterson
 
 The little things are the big things.
 It is never being too old to hold hands. 
