@@ -129,14 +129,14 @@ Ciara's ring today is particularly special, because it was the ring that her fat
 Matthew passes ring to Ciara
 
 **Ciara:**
-I love you with all my heart and I want to be with you for the rest of our lives. You are truly my other half, and I promise to care for you with the all love and attention that that you give to me. Will you be my husband?
+I love you with all my heart and I want to be with you for the rest of our lives. You are truly the one for me, and I promise to care for you with the all the love and attention that that you give to me. Will you be my husband?
 
 **Paul:** I will
 
 Matthew passes ring to Paul
 
 **Paul:**
-I love you with all my heart and I want to be with you for the rest of our lives. You are truly my other half, and I promise to care for you with the all love and attention that that you give to me. Will you be my wife?
+I love you with all my heart and I want to be with you for the rest of our lives. You are truly the one for me, and I promise to care for you with the all the love and attention that that you give to me. Will you be my wife?
 
 **Ciara:**  I will
 
