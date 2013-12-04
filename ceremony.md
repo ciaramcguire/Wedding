@@ -112,6 +112,9 @@ _Couple to stand_
 **Bill:** Do you Ciara Elizabeth McGuire take Paul Martin Campbell to be your husband; to share a relationship of love, tenderness and laughter; to confide in and trust above all others; to respect and stand by him in everything as an equal partner; but above all else to love and cherish him?
 **Ciara:**  I do.
 
+## Song Gianni
+Michael Bublé: Anima e Core
+
 ## EXCHANGE OF RINGS
 
 **Celebrant:**
@@ -145,3 +148,5 @@ I'd like to invite Ethel, Ciara's aunt, to give a blessing.
 Remember to cherish each other as the unique individuals you are and to respect one another’s thoughts, ideas and ambitions.  The wonderful experience of living day by day as married people is about to begin. Go forth to meet it gladly - love life so it will love you. May the source of all life and love bless you - and the wishes of your family and friends strengthen you. May your hope give us hope, may your love give us love.
 
 **I now pronounce you husband and wife.  You may kiss the bride!**
+
+## Strings ALL YOU NEED IS LOVE
